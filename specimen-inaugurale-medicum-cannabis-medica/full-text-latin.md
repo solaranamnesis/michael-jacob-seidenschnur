@@ -88,4 +88,46 @@ His expositis patet, quantopere celebratum sit Haschisch per totum orientem. Exs
 
 Repetunt etiam Arabes, sed sedulo distinguunt Kannab, plantam ipsam, a Schehedanedsch, seminibus, et ab Haschisch, seu succo narcotico. Sic Serapion sub nomine Schehedanedsch virtutes cannabis e Graecis exscribit*: sic Mesue sub nomine Kannab.* Avicenna identidem.* Alio loco vero, de Haschisch loquens, fortius esse remedium ipso euphorbio,* adfirmat, interficere super drachmam potum, adurere stomachum et vomitum ciere.*
 
-...
+*) Simpl. c. 207. f. 153. b.
+
+*) Rhac. contin. lib. 22. c. 461. f. 448. d.
+
+*) Can. lib. 2. p. 248. 256. ed. arab. Rom.
+
+*) Posset tamen etiam pro Euphorbio, mutatis literis arabicis, legi Opium.
+
+*) Ib. p. 178.
+
+# 6.
+
+His omnibus rationis trutina pensitatis, patet:
+
+a\. Haschisch illud remedium novantiquum esse, atque ab Arabum medicorum inde temporibus praedicatum.
+
+b\. Cannabin vere sativam esse, e qua, vario modo, parant orientales populi pharmaca et inebriantia et exhilarantia. Etenim nullum, etiam sagacissimis botanicis, sese obtulit discrimen specificum inter orientalem et nostratem cannabin.
+
+c\. Nostratem cannabin narcotica virtute variarum suarum partium gaudere, vel inde elucet, quod Lindestolpius* adserit, ex diuturniore mora vel somno capto in agris, quibus cannabis sata reperitur, visum debilitari, imo vertiginem et ebrietatem consequi.
+
+d\. Varietatem tamen singularem eligi in oriente ad conficiendas cupedias Muhammedanorum, quae Haschisch dicuntur, cum ipse Kämpferus (l. c.) contendat, non quovis solo easdem exserere virtutes, sed praestantiorem ceteris esse, quae circa Ispahanum crescat. Eam soli efficaciam et culturae etiam in nostratibus plantis culinaribus saepenumero animadvertimus. Brassica Rapa, unica species, infinitas pro soli varietate ostendit vicissitudines, quorsum marchicae praesertim rapae pertinent, in quovis alio, extra Marchiam, solo degenerantes. Scimus etiam Papaver somniferum, unicam speciem, in oriente Opium exhibere, a succo capitum nostratis papaveris diversum. Rheum undulatum et palmatum radices in Germania fert haudquaquam iis virtutibus praeditas, quas in tatarico et mongolico Rhabarbaro observamus.
+
+*) De venenis, p. 541.
+
+e\. Contraria sibi sunt, quae veteres et recentiores de dosi Haschisch proferunt. Avicenna enim, interfici, qui drachma plus sumserit; Domeyerus et ante eum Prosper Alpinus drachmam unam quavis vice propinari adserunt. Oppositas sibi eas relationes ita conjungi posse existimo, si variorum parandi modorum rationem habuerimus. Kämpferus enim et Prosper Alpinus et Russelius, modo cum opio, jam cum aromatibus, nunc cum saccharo solo aut aliis [GREEK] misceri referunt, a quibus virtus hujus remedii et efficacia mire mutari debet.
+
+# 7.
+
+Quod superest, addenda quaedam sunt de vi medica, quam semina cannabis adversus icterum exercere dicuntur. A pluribus inde saeculis per Belgium celebratum est euporiston e cannabis seminibus paratum, quae cum aqua trita emulsionem praebent.* Modum, quo semina cannabis quandoque utiliter agere possunt in hoc morbo, divinare possumus ex observatione Sylvii, qui solis cum lacte coctis seminibus cannabis plures semet curasse ictericos et a plebeiis vidisse curatos narrat. Coquitur ad eum finem manipulus unus seminum cannabis in mensura lactis bubuli, donec semina rupta fuerint, colatum decoctum bis terve de die ad uncias quinque aut sex sumitur.* E celeriori effectu patet, narcotica sua virtute egisse haec semina contra spasmum, verosimilem icteri hujus caussam. Ita etiam Herlizius refert* in ictero epidemico Goettingensi promtissime juvasse semina cannabis eo modo cocta.
+
+*) Dodon. pempt. 4. lib. 2. c. 26. p. 535.
+
+*) Sylv. prax. med. lib. 1. p. 302. 306.
+
+*) Murray appar. medic. vol. 4. p. 619.
+
+# 8.
+
+Denique ad externum usum oleum blandum seminum cannabis commendatur, iisdem certe viribus praeditum ac papaveris oleum. Hinc iniicitur in urethram, dum blennorrhoea laborat: solent etiam in hoc morbo theae forme infusum cannabis seminum commendare, ut ardor doloresque mitigentur, in quo congruunt Todius* et Murrayus.*
+
+*) Kenntn. und Heilung des gem. Trippers, S. 271. 309.
+
+*) Opuse. vol. 2. p. 443. 446.
