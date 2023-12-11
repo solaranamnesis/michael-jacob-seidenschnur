@@ -16,7 +16,7 @@
 
 # 1.
 
-Domeyerus nuper in diario [GREEK], quod Hufelandius, Schregerus et Harlesius edunt,* remedium quoddam Mauricum, Haschisch nomine, tanquam novum priusque inauditum ut et praestantissimum praedicavit, cum opio palmam eripere ipsi videretur. Quaecunque Londinensis ille medicus de efficacia ejus remedii praecepit, mira videbantur atque praeclara cuivis lectori; namque et hilaritatem gignere et insomnia laeta et somnum placidissimum, et corpus recreare, sine ulla noxa, et stomachum firmare fame aucta, nec caput tentare nec nauseam ciere nec alvum stipare ferebatur. Drachmam autem sumi a Mauris foliorum in pulverem redactorum, ipsaque folia, loco foliorum Nicotianae fumo sugi. Mirum eum pulverem missum esse clarissimo Banksio ex Africa, haberi autem a variis pro foliis cannabis sativae in pulverem redactis, licet Mauri negent ipsam eam plantam esse, e qua funes parentur. Hae sunt, quae Domeyerus de novo illo remedio narrat.
+Domeyerus nuper in diario πολυθρυλλήτῳ, quod Hufelandius, Schregerus et Harlesius edunt,* remedium quoddam Mauricum, Haschisch nomine, tanquam novum priusque inauditum ut et praestantissimum praedicavit, cum opio palmam eripere ipsi videretur. Quaecunque Londinensis ille medicus de efficacia ejus remedii praecepit, mira videbantur atque praeclara cuivis lectori; namque et hilaritatem gignere et insomnia laeta et somnum placidissimum, et corpus recreare, sine ulla noxa, et stomachum firmare fame aucta, nec caput tentare nec nauseam ciere nec alvum stipare ferebatur. Drachmam autem sumi a Mauris foliorum in pulverem redactorum, ipsaque folia, loco foliorum Nicotianae fumo sugi. Mirum eum pulverem missum esse clarissimo Banksio ex Africa, haberi autem a variis pro foliis cannabis sativae in pulverem redactis, licet Mauri negent ipsam eam plantam esse, e qua funes parentur. Hae sunt, quae Domeyerus de novo illo remedio narrat.
 
 *) Journal der ausländ. medic. Literatur, J. 1802. S. 74-76.
 
@@ -46,7 +46,7 @@ Uberius et disertius hanc substantiam in oriente tantopere depraedicatam illustr
 
 *) Amoenit. exot. p. 645. seq.
 
-Per totam Persiam in tabernio praesto esse liquorem ex infusis aqua foliis, quo mire recreentur viatores, testatur [GREEK] Chardinus.* In India homines a nimio cannabis usu furibundos evadere, pugnaces; nonnunquam continuo plorare, interdum jugiter ridere, narrat Rumphius.* Quin in ipsa Africa australi cannabis insignem copiam coli, cujus foliis utantur Hottentotti et Caffri ut sese inebrient, referunt Sparrmannus* et Thunbergius.*
+Per totam Persiam in tabernio praesto esse liquorem ex infusis aqua foliis, quo mire recreentur viatores, testatur ἀυτόπτης Chardinus.* In India homines a nimio cannabis usu furibundos evadere, pugnaces; nonnunquam continuo plorare, interdum jugiter ridere, narrat Rumphius.* Quin in ipsa Africa australi cannabis insignem copiam coli, cujus foliis utantur Hottentotti et Caffri ut sese inebrient, referunt Sparrmannus* et Thunbergius.*
 
 *) Voyage en Perse, tom. 4. p. 207.
 
@@ -74,7 +74,7 @@ Ipsa semina cannabis a Persis tanquam aphrodisiacum considerari, a quo tamen ste
 
 # 5.
 
-His expositis patet, quantopere celebratum sit Haschisch per totum orientem. Exspatiari autem in antiquitates liceat, ut, quantopere novitas hujus remedii veritati repugnet, luculenter prodeat. Primus fere, qui cannabis vires medicas praedicat, est Plinius.* Is semine cannabis genituram virorum exstingui; succum vero ex eo vermiculos aurium et quodcunque animal intraverit, necare, sed cum dolore capitis, perhibet. Tantam autem vim ejus esse, ut aquae infusus coagulare eam dicatur. Radicem in aqua coctam articulos contractos resolvere, item podagras et similes impetus. Ambustis crudam illiniri, sed saepius mutari prius quam arescat. Dioscorides confirmat, quae Plinius de sterilitate semine producta narrat.* Distinguit autem sylvestrem a sativa cannabi, illam resolvere, dum cataplasmate illinatur, oedemata et phlegmones et callos. Galenus eadem fere habet de seminis virilis diminutione et usu contra otalgias.* Alio loco vero refert, cum [GREEK], (cupediis) mixtam cannabin [GREEK]. Repetunt haec fere Aëtius et Paullus Aegineta.*
+His expositis patet, quantopere celebratum sit Haschisch per totum orientem. Exspatiari autem in antiquitates liceat, ut, quantopere novitas hujus remedii veritati repugnet, luculenter prodeat. Primus fere, qui cannabis vires medicas praedicat, est Plinius.* Is semine cannabis genituram virorum exstingui; succum vero ex eo vermiculos aurium et quodcunque animal intraverit, necare, sed cum dolore capitis, perhibet. Tantam autem vim ejus esse, ut aquae infusus coagulare eam dicatur. Radicem in aqua coctam articulos contractos resolvere, item podagras et similes impetus. Ambustis crudam illiniri, sed saepius mutari prius quam arescat. Dioscorides confirmat, quae Plinius de sterilitate semine producta narrat.* Distinguit autem sylvestrem a sativa cannabi, illam resolvere, dum cataplasmate illinatur, oedemata et phlegmones et callos. Galenus eadem fere habet de seminis virilis diminutione et usu contra otalgias.* Alio loco vero refert, cum τραγήμασι, (cupediis) mixtam cannabin δυστπέπτην esse et κακοστόμαχον et κεφαλαλγέα et κακόχυμον et θερμαίνοντα. Repetunt haec fere Aëtius et Paullus Aegineta.*
 
 *) Hist. natur. lib. 20. c. 23.
 
@@ -112,7 +112,7 @@ d\. Varietatem tamen singularem eligi in oriente ad conficiendas cupedias Muhamm
 
 *) De venenis, p. 541.
 
-e\. Contraria sibi sunt, quae veteres et recentiores de dosi Haschisch proferunt. Avicenna enim, interfici, qui drachma plus sumserit; Domeyerus et ante eum Prosper Alpinus drachmam unam quavis vice propinari adserunt. Oppositas sibi eas relationes ita conjungi posse existimo, si variorum parandi modorum rationem habuerimus. Kämpferus enim et Prosper Alpinus et Russelius, modo cum opio, jam cum aromatibus, nunc cum saccharo solo aut aliis [GREEK] misceri referunt, a quibus virtus hujus remedii et efficacia mire mutari debet.
+e\. Contraria sibi sunt, quae veteres et recentiores de dosi Haschisch proferunt. Avicenna enim, interfici, qui drachma plus sumserit; Domeyerus et ante eum Prosper Alpinus drachmam unam quavis vice propinari adserunt. Oppositas sibi eas relationes ita conjungi posse existimo, si variorum parandi modorum rationem habuerimus. Kämpferus enim et Prosper Alpinus et Russelius, modo cum opio, jam cum aromatibus, nunc cum saccharo solo aut aliis τραγήματι misceri referunt, a quibus virtus hujus remedii et efficacia mire mutari debet.
 
 # 7.
 
