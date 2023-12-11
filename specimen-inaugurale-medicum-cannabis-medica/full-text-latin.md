@@ -40,10 +40,52 @@ Confirmat ea saeculi decimi sexti peregrinator celeberrimus, Prosper Alpinus.* "
 
 # 3.
 
-Uberius et disertius hanc substantiam in oriente tantopere depraedicatam illustravit Engelb. Kämpferus, qui exeunte saeculo decimo septimo Persiam peragravit. Cannabin eam, quae inebrians remedium illud praebet, ut ovum ovo, in omnibus nostrati similem habet, neque varietatem levissimam, quam Indi Bangue appellant,* tanquam speciem esse considerandam. Virtutem vero suam non in quovis solo et sub quolibet caelo adipisci, namque solummodo in agro urbis Ispahan et in Luristana et apud Caseruna genuinam alere suam efficaciam. "Semen inquit,* virtutem obtinet debiliorem; incoquitur cibis, et ingreditur emulsiones, ordinandas ad laetitiae crapulam inducendam. Alii semen saccharo saleve condunt, vescendum ad gaudia etiam conjugibus inducenda. Pultes, dum Cracoviae studerem, ex farina seminis cannabini per jejunia saepe comedimus, ex quibus vero crapulosum me vel in gaudia effusum esse non memini." E polline quoque florum, per linteum cribrato, parari probatissimam earum gentium substantiam, dum in trochiscos redigatur; tres esse fere ejus species; primam ac praestantissimam, cujus trochisci fracti scinillis micent, interno usui commendatam; 
+Uberius et disertius hanc substantiam in oriente tantopere depraedicatam illustravit Engelb. Kämpferus, qui exeunte saeculo decimo septimo Persiam peragravit. Cannabin eam, quae inebrians remedium illud praebet, ut ovum ovo, in omnibus nostrati similem habet, neque varietatem levissimam, quam Indi Bangue appellant,* tanquam speciem esse considerandam. Virtutem vero suam non in quovis solo et sub quolibet caelo adipisci, namque solummodo in agro urbis Ispahan et in Luristana et apud Caseruna genuinam alere suam efficaciam. "Semen inquit,* virtutem obtinet debiliorem; incoquitur cibis, et ingreditur emulsiones, ordinandas ad laetitiae crapulam inducendam. Alii semen saccharo saleve condunt, vescendum ad gaudia etiam conjugibus inducenda. Pultes, dum Cracoviae studerem, ex farina seminis cannabini per jejunia saepe comedimus, ex quibus vero crapulosum me vel in gaudia effusum esse non memini." E polline quoque florum, per linteum cribrato, parari probatissimam earum gentium substantiam, dum in trochiscos redigatur; tres esse fere ejus species; primam ac praestantissimam, cujus trochisci fracti scinillis micent, interno usui commendatam; alteram viliorem, sputo humano mixtam, tabaco jungi; tertiam iidem usui dicatam. Praeterea describit modum parandi Haschisch, quem a Derwischi persicis didicerit: Folia cannabis aqua adfusa adsiduo agitabant, dein aquam, expressis leniter foliis, abiiciebant; adfusa aqua recenti alia, quam cum pulvere aliquoties agitatam, denuo abiiciebant. Pulverem gemina vice elutum expressumque subiiciebant pistillo obeso ligneo, et in vase fictili non incrustato acerrime terebant, donec redactus esset in pultem. Huic paullatim adfundebant aquam recentem, rotabant continuo, et demum per linteum trajiciebant, omni, praeter recrementa, permeante substantia: ex qua ipse colatus liquor virescebat. E liquore, is qui praeparaverat, scyphum, dimidiae librae capacem, singulis admetiebatur sociis, affatim evacuandum, rotato subinde vase ne farina subsideret. Hoc liquore, velut mero, delibuti et ad laetitiam conformati, se reddebant itineri. Sunt, qui pulverem cum syrupo subigunt, pro efformandis placentis et bolis, in eumdum usum deglutiendis. A foliis cannabinis, velut a potiori inebriantium specie, homines ebriosi in Persia Indiaque vulgo appellantur Bengi.
 
 *) Rheed. hort. Malab. tom. 10. p. 119.
 
 *) Amoenit. exot. p. 645. seq.
+
+Per totam Persiam in tabernio praesto esse liquorem ex infusis aqua foliis, quo mire recreentur viatores, testatur [GREEK] Chardinus.* In India homines a nimio cannabis usu furibundos evadere, pugnaces; nonnunquam continuo plorare, interdum jugiter ridere, narrat Rumphius.* Quin in ipsa Africa australi cannabis insignem copiam coli, cujus foliis utantur Hottentotti et Caffri ut sese inebrient, referunt Sparrmannus* et Thunbergius.*
+
+*) Voyage en Perse, tom. 4. p. 207.
+
+*) Herbar. Amboin. tom. 5. p. 210.
+
+*) Resa til goda Hopps udden, p. 468.
+
+*) Resa uti Europa etc. D. I. p. 212.
+
+# 4.
+
+Ex India in Tatariam orientalem migrasse videtur usus cannabis. Refert enim Falkius,* Bukharos fasciculis floram cannabinorum impraegnare aquam, bolos quoque hilaritatis conficere ex hisce fasciculis, dum eos intra folia brassicae in cineribus calidis insudare sinant et haec cremore lactis tincta assataque in bolos redigant.
+
+*) Beiträge zur topograph. Kenntn. des russischen Reichs, B. 2. S. 265.
+
+Condimenta varia in Malabaria fieri e foliis cannabis cum moscho, ambra, camfora, areca, et caryophyllis, referant Garcias ab Orto* et Christoph. a Costa.*
+
+*) Clus. exot. p. 258.
+
+*) Ib. p. 290.
+
+Ipsa semina cannabis a Persis tanquam aphrodisiacum considerari, a quo tamen sterilitas efficiatur, Olearius narrat.*
+
+*) Orient. Reiser S. 529.
+
+# 5.
+
+His expositis patet, quantopere celebratum sit Haschisch per totum orientem. Exspatiari autem in antiquitates liceat, ut, quantopere novitas hujus remedii veritati repugnet, luculenter prodeat. Primus fere, qui cannabis vires medicas praedicat, est Plinius.* Is semine cannabis genituram virorum exstingui; succum vero ex eo vermiculos aurium et quodcunque animal intraverit, necare, sed cum dolore capitis, perhibet. Tantam autem vim ejus esse, ut aquae infusus coagulare eam dicatur. Radicem in aqua coctam articulos contractos resolvere, item podagras et similes impetus. Ambustis crudam illiniri, sed saepius mutari prius quam arescat. Dioscorides confirmat, quae Plinius de sterilitate semine producta narrat.* Distinguit autem sylvestrem a sativa cannabi, illam resolvere, dum cataplasmate illinatur, oedemata et phlegmones et callos. Galenus eadem fere habet de seminis virilis diminutione et usu contra otalgias.* Alio loco vero refert, cum [GREEK], (cupediis) mixtam cannabin [GREEK]. Repetunt haec fere Aëtius et Paullus Aegineta.*
+
+*) Hist. natur. lib. 20. c. 23.
+
+*) Lib. 3. c. 165. p. 240. ed. Sarrac.
+
+*) De facult. simpl. lib. 7. p. 87. ed. Basil. graec.
+
+*) Tetr. l. serm. 1. col. 29. ed. Stephan.
+
+*) Lib. 7. p. 239. ed. Basil. graec.
+
+Repetunt etiam Arabes, sed sedulo distinguunt Kannab, plantam ipsam, a Schehedanedsch, seminibus, et ab Haschisch, seu succo narcotico. Sic Serapion sub nomine Schehedanedsch virtutes cannabis e Graecis exscribit*: sic Mesue sub nomine Kannab.* Avicenna identidem.* Alio loco vero, de Haschisch loquens, fortius esse remedium ipso euphorbio,* adfirmat, interficere super drachmam potum, adurere stomachum et vomitum ciere.*
 
 ...
